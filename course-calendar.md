@@ -43,7 +43,7 @@ Thursday, September 8
 Friday, Sept 10
 * **Response 2 due**
 
-## Unit 2: Queer Histories, Queer Presents
+## Unit 2: Disidentifications
 ### Week 4
 Tuesday, September 13
 * José Esteban Muñoz, Introduction “Performing Disidentifications,” from *Disidentifications: Queers of Color and the Performance of Politics* (1999), pgs 1-13, 21-34 (GD)
