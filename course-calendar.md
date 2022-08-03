@@ -57,7 +57,8 @@ Friday, September 16
 Tuesday, September 20
 * Marlon Riggs, dir., *Tongues Untied* (1989), <https://fod-infobase-com.access.library.miami.edu/p_ViewVideo.aspx?xtid=57872> (53:52)
     * This film is available to stream for free for UM students through our library (via Films on Demand). Clicking the link above will take you to a page that requires you to sign in with your UM CaneID and password. After you enter those, you will be able to stream the film.
-    * If the link isn't working for you, follow these steps to watch the film:
+    * You can also access this film by going to our course Blackboard site and selecting "uReserves" from the left sidebar menu. Clicking on "Items on Course Reserves" will take you to a screen where the 3 films we are watching this semester are listed. Under "Tongues Untied," select "Check availability," then "View online."
+    * If the above 2 methods don't work for you, follow these steps to watch the film:
         * Head to the [UM Library homepage](https://www.library.miami.edu/), and scroll down to the “Databases A-Z” section.
         * Select F, and you’ll be taken to a screen listing all of the databases that start with F.
         * Scroll down to “Films On Demand: Master Academic Package,” and click on that. If you are not on campus, you may be prompted at this point to enter your CaneID and password.
@@ -97,7 +98,8 @@ Sunday, October 9
 Tuesday, October 11
 * Cheryl Dunye, dir., *The Watermelon Woman* (1996), <https://miami.kanopy.com/video/watermelon-woman> (1 hour, 24 minutes)
     * This film is available to stream for free for UM students through our library (via Kanopy). Clicking the link above will take you to a page that requires you to sign in with your UM CaneID and password. After you enter those, you will be able to stream the film.
-    * If the link isn't working for you, follow these steps to watch the film:
+    * You can also access this film by going to our course Blackboard site and selecting "uReserves" from the left sidebar menu. Clicking on "Items on Course Reserves" will take you to a screen where the 3 films we are watching this semester are listed. Under "The Watermelon Woman," select "Check availability," then "View online."
+    * If the above 2 methods don't work for you, follow these steps to watch the film:
         * Head to the [UM Library homepage](https://www.library.miami.edu/), and scroll down to the “Databases A-Z” section.
         * Select K, and you’ll be taken to a screen listing all of the databases that start with K.
         * Select "Kanopy". If you are not on campus, you may be prompted at this point to enter your CaneID and password and/or create an individual Kanopy account using your UM credentials.
@@ -170,6 +172,7 @@ Friday, November 11
 Tuesday, November 15
 * Jim Hubbard, dir., *United in Anger: A History of ACT UP* (2012), <https://miami.kanopy.com/product/united-anger-history-act-0> (1 hour, 33 minutes)
     * This film is available to stream for free for UM students through our library (via Kanopy). Clicking the link above will take you to a page that requires you to sign in with your UM CaneID and password. After you enter those, you will be able to stream the film.
+    * You can also access this film by going to our course Blackboard site and selecting "uReserves" from the left sidebar menu. Clicking on "Items on Course Reserves" will take you to a screen where the 3 films we are watching this semester are listed. Under "United in Anger: A History of ACT UP," select "Check availability," then "View online."
     * If the link isn't working for you, follow these steps to watch the film:
         * Head to the [UM Library homepage](https://www.library.miami.edu/), and scroll down to the “Databases A-Z” section.
         * Select K, and you’ll be taken to a screen listing all of the databases that start with K.
