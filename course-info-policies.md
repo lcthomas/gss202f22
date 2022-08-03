@@ -19,6 +19,9 @@ All course materials that you need to purchase are available via the UM bookstor
     * Available streaming via UM library (https://miami.kanopy.com/video/united-anger-history-act-0)
 * All other course readings are available via our course website and Google drive folder.
 
+## Masks
+You are not required to wear a mask during class, but the university encourages it. UM's guidance on masking right now reads like this: "Because Miami-Dade County is currently experiencing a high level of community risk for COVID-19, the University encourages masking indoors, including classrooms, especially for individuals with underlying medical conditions. CDC guidelines on masks can be found [here](https://www.cdc.gov/coronavirus/2019-ncov/prevent-getting-sick/masks.html), along with information on how to obtain free masks."
+
 ## Grading
 This class will be assessed using contract grading (described below). In addition to regular preparation for, attendance of, and participation in class meetings, the work of the course will be conducted across the below 3 assignments, which are described in more detail on this website:
 
