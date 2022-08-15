@@ -157,7 +157,8 @@ Tuesday, November 8
     * Read short article and watch film embedded at top of page
 * Lawrence K. Altman, “Rare Cancer Seen in 41 Homosexuals,” *The New York Times*, July 3, 1981, <https://www.nytimes.com/1981/07/03/us/rare-cancer-seen-in-41-homosexuals.html> (NYT’s earliest report on AIDS)
 * *NBC Nightly News*, June 17, 1982 (1:54) <https://www.youtube.com/watch?v=1LKJ5ZzzL0w> (NBC’s earliest report on AIDS)
-* Sarah Schulman, “Joy of Gay Sex Removed from Brooklyn Libraries,” New York Native, February 1986 (GD)
+* Sarah Schulman, “Gay Books Back in School,” *New York Native*, August 1983 (GD)
+* Sarah Schulman, “Joy of Gay Sex Removed from Brooklyn Libraries,” *New York Native*, February 1986 (GD)
 * William F. Buckley, “Crucial Steps in Combating the AIDS Epidemic; Identify All the Carriers,” *The New York Times*, March 18, 1986, <https://archive.nytimes.com/www.nytimes.com/books/00/07/16/specials/buckley-aids.html>
 * Vito Russo, “Why We Fight,” speech at ACT UP demonstration in Albany, NY, May 9, 1988, <https://actupny.org/documents/whfight.html>
 
