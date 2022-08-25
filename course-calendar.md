@@ -88,7 +88,7 @@ Tuesday, October 4
 Thursday, October 6
 * Jordy Rosenberg, *Confessions of the Fox* (2018), wrap-up
 * Discussion of keyword analysis
-    * You should know which keyword and which texts you are planning to write about by class on this day.
+    * You should know which keyword and which texts you are planning to write about by class on this day. Bring a laptop or a tablet and at least one of the texts you are planning to write about.
 
 Sunday, October 9
 * **Keyword Analysis due**
