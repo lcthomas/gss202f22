@@ -40,7 +40,7 @@ Tuesday, September 6
 Thursday, September 8
 * Cathy J. Cohen, “Punks, Bulldaggers, and Welfare Queens: The Radical Potential of Queer Politics?”, *GLQ* vol 3 (1997): 437-465 (GD)
 
-Friday, Sept 10
+Friday, Sept 9
 * **Response 2 due**
 
 ## Unit 2: Disidentifications
