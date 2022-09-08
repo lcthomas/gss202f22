@@ -9,7 +9,7 @@ nav_order: 1
 <lindsaythomas@miami.edu>, <lxt308@miami.edu>
 
 ## Office Hours
-Wed, 2-4 pm</br>
+Wed, 2-4 pm, and by appointment</br>
 Ashe 307
 
 ## Course Description
