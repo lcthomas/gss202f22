@@ -45,6 +45,12 @@ You should respond to both of the below questions for this response:
     d. Who or what is P——-?
 
 ## Response 5
+This week in class we discussed the ways that secrecy and confession, disclosure and the refusal to disclose, function in *Confessions of the Fox*. The idea of “confession” is important to queer theory, for lots of reasons. Michel Foucault – who was, among many other things, a historian of sexuality – suggests that religious “confession” – the idea that the truth would set you free – found its way into psychological science in the 19th century. Therapy as a talking cure is built on this notion that speaking our truths will free us. Foucault was skeptical about this, because he thought that speaking the truth also meant (1) Assuming that there was a truth, and that truth was knowable, and (2) Making yourself subject to the power and, perhaps, discipline of the medical community. This last point was especially salient when Foucault was writing in the 1970s and early 80s, as homosexuality was not completely removed from the American Psychiatric Association’s Diagnostic and Statistical Manual of Mental Disorders (DSM) until 1987. It is also salient today when, for example, trans people must be diagnosed by a medical provider with gender dysphoria (a new addition to the DSM in 2013) in order to access gender affirmation procedures.
+
+For your response this week, you will reflect more on the role of confession and disclosure in the novel. You should do both steps 1 and 2 below.
+
+1. First, select 1 passage or scene from the novel in which someone confesses or discloses something and 1 passage or scene from the novel in which someone (or the novel itself) refuses to confess or disclose something. Write the page number(s) of each of these passages or scenes, as well as the lines with which they begin and end, at the top of your paper.
+2. Write ~2 paragraphs in which you respond to the following questions: What differentiates the passages or scenes you have selected? What makes some confessions or disclosures “good” and others “bad” in the novel? In your response, you might also think about the following questions: Under what circumstances is secrecy freeing, and under what conditions is it harmful? And under what circumstances is confession freeing, and under what conditions is it harmful? You should quote directly from the passages or scenes you have selected in your response, including the page numbers, to provide evidence for your interpretations or points.
 
 ## Response 6
 
