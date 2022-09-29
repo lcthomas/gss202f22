@@ -105,7 +105,7 @@ Tuesday, October 11
         * Select "Kanopy". If you are not on campus, you may be prompted at this point to enter your CaneID and password and/or create an individual Kanopy account using your UM credentials.
         * Once you’ve logged into the service, enter “The Watermelon Woman” into the search bar at the top. Once you start typing, the film should come up automatically (it's got a bright pink image). Select the film.
         * You should now be taken to a screen where you are able to watch the film.
-    * _The Watermelon Woman_ is also available to stream via Amazon Prime and Showtime, if you subscribe to those services and would rather watch it that way.
+    * _The Watermelon Woman_ is also available to stream via Amazon Prime, Showtime, Paramount+, and Hulu Premium if you subscribe to those services and would rather watch it that way.
 
 Thursday, October 13: Fall break – NO CLASS
 
