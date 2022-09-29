@@ -91,7 +91,7 @@ Thursday, October 6: Class taught by Professor Jessica Rosenberg
     * You should know which keyword and which texts you are planning to write about by class on this day. Bring a laptop or a tablet and at least one of the texts you are planning to write about with you to class.
 
 Sunday, October 9
-* **Keyword Analysis due**
+* **Keyword Analysis due (this keyword analysis paper is required)**
 
 ## Unit 3: The Personal and the Political
 ### Week 8
