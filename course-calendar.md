@@ -85,10 +85,10 @@ Friday, September 30
 Tuesday, October 4
 * Jordy Rosenberg, *Confessions of the Fox* (2018), Part III, Ch 1 – Ch 13 (pgs 231-316)
 
-Thursday, October 6
+Thursday, October 6: Class taught by Professor Jessica Rosenberg
 * Jordy Rosenberg, *Confessions of the Fox* (2018), wrap-up
-* Discussion of keyword analysis
-    * You should know which keyword and which texts you are planning to write about by class on this day. Bring a laptop or a tablet and at least one of the texts you are planning to write about.
+* Keyword analysis paper workshop
+    * You should know which keyword and which texts you are planning to write about by class on this day. Bring a laptop or a tablet and at least one of the texts you are planning to write about with you to class.
 
 Sunday, October 9
 * **Keyword Analysis due**
@@ -143,7 +143,8 @@ Tuesday, November 1
 
 Thursday, November 3
 * Butler and Snorton, con’t
-* Keyword analysis workshop: You should come to class knowing which keyword and which texts you want to write about. Bring a laptop or a tablet and at least one of the texts you are planning to write about.
+* Keyword analysis paper workshop
+    * You should come to class knowing which keyword and which texts you want to write about. Bring a laptop or a tablet and at least one of the texts you are planning to write about with you to class.
 
 Sunday, November 6
 * **Contract Reassessment due**
