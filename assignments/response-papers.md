@@ -53,8 +53,14 @@ For your response this week, you will reflect more on the role of confession and
 2. Write ~2 paragraphs in which you respond to the following questions: What differentiates the passages or scenes you have selected? What makes some confessions or disclosures “good” and others “bad” in the novel? In your response, you might also think about the following questions: Under what circumstances is secrecy freeing, and under what conditions is it harmful? And under what circumstances is confession freeing, and under what conditions is it harmful? You should quote directly from the passages or scenes you have selected in your response, including the page numbers, to provide evidence for your interpretations or points, though your explanation and/or analysis of the quotes you include should outweigh the quotes themselves.
 
 ## Response 6
+For this response, you should respond to EITHER question 1 OR question 2 (you only need to answer one of them). Make sure to indicate in your response which question you are responding to.
+
+1. What is the significance of the title of this novel? Why is it called _Giovanni's Room_? Your response should be about 2 paragraphs long, and it should be specific. You should ground your discussion in at least 1 passage from the text. While, again, your response should be specific, you don't need to arrive at any definite conclusions.
+
+2. This is a free response option: you can write about anything related to _Giovanni's Room_ that you would like to discuss. This is an opportunity to reflect in more depth on something we discuss in class or on something you have noticed about or observed in the novel. No matter what you discuss, your response should be about 2 paragraphs long, and it should be specific. You should ground your discussion in at least 1 passage from the text. In fact, a good way to decide what to write about for this response is to think about a specific passage or moment from the novel that confuses you, that you can't explain, or that you don't understand. While, again, your response should be specific, you don't need to arrive at any definite conclusions.
 
 ## Response 7
+This unit of the course is named after the second-wave feminist motto, "the personal is political." And this week, we read interviews and personal essays/works of autotheory (a term we will discuss in Thursday's class), both genres that are interested in the connections between people's personal lives and larger social or political ideas. Focusing on at least 1 text we read this week, write ~2 paragraphs about how that text demonstrates or relates to the motto "the personal is political." As always, you should select a specific passage(s) from that text to discuss in your response (and make sure to indicate somewhere in your response which text(s) you are writing about).
 
 ## Response 8
 
