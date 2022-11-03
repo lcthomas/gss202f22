@@ -63,5 +63,15 @@ For this response, you should respond to EITHER question 1 OR question 2 (you on
 This unit of the course is named after the second-wave feminist motto, "the personal is political." And this week, we read interviews and personal essays/works of autotheory (a term we will discuss in Thursday's class), both genres that are interested in the connections between people's personal lives and larger social or political ideas. Focusing on at least 1 text we read this week, write ~2 paragraphs about how that text demonstrates or relates to the motto "the personal is political." As always, you should select a specific passage(s) from that text to discuss in your response (and make sure to indicate somewhere in your response which text(s) you are writing about).
 
 ## Response 8
+Response 8 is canceled, but it will count for everyone as if you have turned it in.
 
 ## Response 9
+Your final response paper in this class is an abstract for your final project. This is your opportunity to receive more formal feedback from me about your ideas for the final project and for me to answer any questions you have about the project. First, if you haven’t done so already, [you should read the final project assignment page](https://lindsaythomas.net/gss202f22/assignments/final-project.html). Then, you can write your response.
+
+Your response should include the following things:
+
+1. At least 2 of the (at minimum) 5 objects or materials from your archive. For each object, you should provide the name or title of the object, the name of the creator, the publication or posting etc date, and a link to the object or material (or another way for me to access the object or material).
+2. A ~1 paragraph description of the history of queerness and/or queer communities in the present that you are focusing on in your final project.
+3. A ~1-2 paragraph discussion of your archive itself, including how the items you have collected so far go together (how are they connected?), what other objects or materials you plan to gather, and how these objects or materials contribute to the history of the present you want to tell. What will your archive eventually include, and why?
+4. An answer to this question: What (at minimum) 2 texts from our course do you think you want to include in your critical introduction to your archive?
+5. A brief response to this question: Based on the feedback you have received from me throughout the semester and/or your own sense of yourself as a student, writer, and thinker, what are your goals for this assignment? These goals can relate to the subject matter you are writing about, to the writing itself, to your own preparation for and readiness to complete the assignment, to the timeframe in which you want to complete it, etc. There are lots of options – the point is that I would like to hear from you about how you are thinking about and approaching this assignment.
