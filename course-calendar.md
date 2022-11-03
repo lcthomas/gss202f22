@@ -168,7 +168,7 @@ Thursday, November 10
     * If you are interested in looking at an ACT UP New York timeline that details the group's activities and important moments in the history of LGBTQ and AIDS activism in the US, see the file titled "Schulman -- ACT UP Timeline" in our course readings folder. It provides a chronological backdrop to the historical overview Schulman gives in the introduction to her book. (GD)
 
 Friday, November 11
-* **Response 8 due**
+* **Response 8 canceled: It will count for everyone as if you have turned it in.**
 
 ### Week 13
 Tuesday, November 15
