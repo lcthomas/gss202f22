@@ -181,6 +181,7 @@ Tuesday, November 15
         * Select "Kanopy". If you are not on campus, you may be prompted at this point to enter your CaneID and password and/or create an individual Kanopy account using your UM credentials.
         * Once you’ve logged into the service, enter “United In Anger” into the search bar at the top. Once you start typing, the film should come up automatically. Select the film.
         * You should now be taken to a screen where you are able to watch the film.
+    * You can also watch this film on YouTube for free: <https://www.youtube.com/watch?v=MrAzU79PBVM>.
 * ACT UP Oral History Project: <http://www.actuporalhistory.org/interviews/>. Please select one interview transcript to read/skim. Here's how to access the interview transcripts:
     * You can use the link above (<http://www.actuporalhistory.org/interviews/>) to browse through the interviews and select one to skim. Note its number (e.g., “Interview #002).
     * Once you’ve found one you would like to skim, go to this page: <https://actuporalhistory.org/numerical-interviews>. At the top of the page, you will see links that page you to groups of interviews, organized by number. Click on the link that includes the number of the interview you want to skim.
