@@ -182,10 +182,9 @@ Tuesday, November 15
         * Once you’ve logged into the service, enter “United In Anger” into the search bar at the top. Once you start typing, the film should come up automatically. Select the film.
         * You should now be taken to a screen where you are able to watch the film.
     * You can also watch this film on YouTube for free: <https://www.youtube.com/watch?v=MrAzU79PBVM>.
-* ACT UP Oral History Project: <http://www.actuporalhistory.org/interviews/>. Please select one interview transcript to read/skim. Here's how to access the interview transcripts:
-    * You can use the link above (<http://www.actuporalhistory.org/interviews/>) to browse through the interviews and select one to skim. Note its number (e.g., “Interview #002).
-    * Once you’ve found one you would like to skim, go to this page: <https://actuporalhistory.org/numerical-interviews>. At the top of the page, you will see links that page you to groups of interviews, organized by number. Click on the link that includes the number of the interview you want to skim.
-    * You will then be taken to a page where you can select the interview. Clicking on it will take you to a page where you can watch a full, unedited version of the interview, watch an excerpt, or read the transcript. Select “Transcript” to skim the transcript.
+* ACT UP Oral History Project: <https://actuporalhistory.org/numerical-interviews>. Please select one interview transcript to read/skim. Here's how to access the interview transcripts:
+    * You can use the link above (<https://actuporalhistory.org/numerical-interviews>) to browse through the interviews and select one to skim by clicking on that interview's image.
+    * You will then be taken to that interview's page. On this page, you can watch a full, unedited version of the interview, watch an excerpt, or read the transcript. Select “Transcript” to skim the transcript.
 
 Thursday, November 17
 * Jim Hubbard, dir., *United in Anger: A History of ACT UP* (2012), con’t
