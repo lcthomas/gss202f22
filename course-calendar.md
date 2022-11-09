@@ -197,13 +197,12 @@ Friday, November 18
 ### Week 14
 Tuesday, November 22: NO CLASS
 * Office hours during class (on Zoom)
-* Read Sarah Schulman et al, “The Lesbian Avengers,” Parts 1-4, from *My American History: Lesbian and Gay Life During the Reagan/Bush Years* (1994) (GD)
 
 Thursday, November 25: Thanksgiving break – NO CLASS
 
 ### Week 15
 Tuesday, November 29
-* Discuss Schulman et al, “The Lesbian Avengers,” Parts 1-4, from *My American History: Lesbian and Gay Life During the Reagan/Bush Years* (1994) (GD)
+* Schulman et al, “The Lesbian Avengers,” Parts 1-4, from *My American History: Lesbian and Gay Life During the Reagan/Bush Years* (1994) (GD)
 
 Thursday, December 1
 * A discussion about archives and archiving with UM Special Collections Head, Cristina Favretto (meet in Kislak Center)
