@@ -188,8 +188,9 @@ Tuesday, November 15
 
 Thursday, November 17
 * Jim Hubbard, dir., *United in Anger: A History of ACT UP* (2012), con’t
-* Sarah Schulman, “The Denial of AIDS and the Construction of a Fake Life,” talk presented at Outwrite: National Lesbian and Gay Writers’ Conference (1992) (GD)
 * Marika Cifor, selections from Ch. 1 “‘Your Nostalgia is Killing Me!’: ACT UP Nostalgia and the Meaning of HIV/AIDS,” from *Viral Cultures: Activist Archiving in the Age of AIDS* (2022), pgs 40-51 (GD)
+* Recommended:
+    * Sarah Schulman, “The Denial of AIDS and the Construction of a Fake Life,” talk presented at Outwrite: National Lesbian and Gay Writers’ Conference (1992) (GD)
 
 Friday, November 18
 * **Response 9 due (this response is required)**
